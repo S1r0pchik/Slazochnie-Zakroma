@@ -1,2 +1,2 @@
-# Slazochnie Zakroma
+# Skazochnie Zakroma
  
